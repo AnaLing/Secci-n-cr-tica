@@ -1,1 +1,1 @@
-# Secci-n-cr-tica
+# Sección-crtica
